@@ -18,12 +18,12 @@
 
 OK THATS IT SOOOO MANY THINGS TO LEARN 
 
-`I HAVE TWO MODE`
-
-`;(`
-![](https://media.tenor.com/images/d2807b33de987d0dc2e3426a3ac32b64/tenor.gif)
 
 
-`:(`
+``
+`sometime u cry`![](https://media.tenor.com/images/d2807b33de987d0dc2e3426a3ac32b64/tenor.gif)
+
+
+`most of time he is sad`
 
 ![](https://media.tenor.com/images/2794518aa4f09416111160d1393d6301/tenor.gif)
