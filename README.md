@@ -1,6 +1,6 @@
 ### YOO LUFFY SENPAI HERE
 
-<img>https://giphy.com/gifs/luffy-ZUEVCzp1WVCNi</img>
+![giphy](https://user-images.githubusercontent.com/60225359/128351682-bfc6b5bf-c452-4ba9-9847-98c6cd618abf.gif)
 
 <!--
 **theluffysenpaii/theluffysenpaii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
