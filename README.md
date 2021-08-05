@@ -1,7 +1,7 @@
 ![luffy](https://c.tenor.com/UTxKJNlZilwAAAAj/luffy-monkey-d-luffy.gif)
 
 
-# ** LUFFY SENPAI**
+# LUFFY SENPAI
 
 `I am Shubham, just a normal dude trying to learn new skills and have fun in life.`:trollface: 
 
