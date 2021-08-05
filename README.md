@@ -18,5 +18,4 @@ I am Shubham, just a normal dude trying to learn new skills and have fun in life
 
 OK THATS IT SOOOO MANY THINGS TO LEARN 
 
-
-<img>https://c.tenor.com/UTxKJNlZilwAAAAj/luffy-monkey-d-luffy.gif</img>
+![luffy](https://c.tenor.com/UTxKJNlZilwAAAAj/luffy-monkey-d-luffy.gif)
