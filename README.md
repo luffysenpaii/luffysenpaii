@@ -9,7 +9,7 @@
 
 `WIFI , LOW PING , HOMIES AND GAMES IS LIFE` :octocat:
 
-##🔭SKILLS 
+## 🔭SKILLS 
 - Python HTML CSS BASH C 
 - RICING 
 - LINUX 
