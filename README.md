@@ -19,8 +19,10 @@
 OK THATS IT SOOOO MANY THINGS TO LEARN 
 
 `I HAVE TWO MODE`
-`;)`
+
+`;(`
 ![](https://media.tenor.com/images/d2807b33de987d0dc2e3426a3ac32b64/tenor.gif)
+
 
 `:(`
 
